@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Cynthia Nwabueze 
 - 👀 I’m interested in collecting data, analysis and reporting data.
 - 🌱 I’m currently learning advanced Excel, Power BI,SQL and TABLEAU
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate with individuals, companies and organisations. 
 - 📫 How to reach me click [here](https://www.facebook.com/cynthia.nwabueze.31?mibextid=ZbWKwL) Or click [here](https://www.linkedin.com/in/nwabueze-cynthia-812876196?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: I am an enthusiastic quick learner, love children and like collecting datas. 
